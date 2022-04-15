@@ -1,0 +1,2 @@
+# rewater-staking
+💥Another variation for earning is cross chain staking   One of the inventions of the platform is its ability to facilitate the majority of the market including all of the smaller altcoins you might have. You can finally get utility for your depreciating assets and get real value from them on re:water.  💧✨Simply put your tokens in the Tile and mine WTR from regular rains that pour from the global cloud.  No time to wait, time to colonize👉🏻http://www.rewater.io
